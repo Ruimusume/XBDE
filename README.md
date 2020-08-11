@@ -6,6 +6,6 @@ by 露易娘 Ruimusume</br>
 
 <img src="iii"/>
 
-v1.0.1</br>
+v1.1.2</br>
 TID:0100FF500E34A000</br>
 BID:92c78bb3dcbbc3f7</br>
