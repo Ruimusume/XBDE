@@ -5,9 +5,9 @@ by 露易娘 Ruimusume</br>
 微博：https://weibo.com/ruisan</br>
 
 Swtich Xenoblade Definitive Edition  v1.1.2 SXOS Cheats</br>
-ゼノブレイド　ディフィニティブ・エディション v1.1.2 SXOS Cheats</br>
-异度之刃 终极版 v1.1.2 SXOS 金手指</br>
-异度神剑 终极版 v1.1.2 SXOS 金手指</br>
+Swtich ゼノブレイド　ディフィニティブ・エディション v1.1.2 SXOS Cheats</br>
+Swtich 异度之刃 终极版 v1.1.2 SXOS 金手指</br>
+Swtich 异度神剑 终极版 v1.1.2 SXOS 金手指</br>
 
 <img src="https://i.imgur.com/GO0WahJ.jpg">
 
